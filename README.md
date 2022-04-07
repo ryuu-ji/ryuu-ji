@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ryuu-ji
+- 👀 I'm interested in graphics design, 3d modelling on blender and scripting
+- 🌱 I’m currently learning blender
+- 💞️ I’m looking to collaborate on nothing as of now
+- 📫 How to reach me by email: yoshirostudiosrblx@gmail.com or by my twitter @ryujiwastaken_
